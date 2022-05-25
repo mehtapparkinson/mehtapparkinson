@@ -1,4 +1,5 @@
-### Hi there 👋
+![MEHTAP](https://user-images.githubusercontent.com/97293905/170319564-054eb50f-ea3b-43ba-8be0-ef39eedf7cca.gif)
+
 
 <!--
 **mehtapparkinson/mehtapparkinson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

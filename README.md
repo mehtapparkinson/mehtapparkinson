@@ -1,4 +1,5 @@
-![MEHTAP](https://user-images.githubusercontent.com/97293905/170319564-054eb50f-ea3b-43ba-8be0-ef39eedf7cca.gif)
+
+![MEHTAP (1)](https://user-images.githubusercontent.com/97293905/170320890-26284533-7c52-46a7-8fb1-cbeda3b2cd89.gif)
 
 
 <!--

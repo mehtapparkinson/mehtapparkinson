@@ -1,6 +1,5 @@
-
-
-https://user-images.githubusercontent.com/97293905/171989333-e782371f-6351-480f-b8be-ad3ea05137c0.mp4
+![MEHTAP (3)](https://user-images.githubusercontent.com/97293905/171989355-02ad3f9d-7540-42eb-b43d-7cc5cf566de2.gif)
+👩🏽‍💻 Click [here](https://www.linkedin.com/in/mehtapparkinson/) to go to my LinkedIn profile. 
 
 
 
